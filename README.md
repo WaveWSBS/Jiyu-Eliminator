@@ -1,1 +1,2 @@
-# Jiyu-fucker-by-Leo-Jiang
+
+Jiyu-Eliminator
